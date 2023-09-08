@@ -1,2 +1,4 @@
-# profile
-Profile description
+# Luis Rodriguez (luiscarp)
+
+## Chemical Engineer
+## M. Sc. Materials science
